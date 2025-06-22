@@ -1,8 +1,6 @@
 # 👋 Hello, I'm Naren Shailesh G
 
-📍 Chennai, India  
-📫 Email: narenshailesh913@gmail.com  
-🔗  [LinkedIn](https://www.linkedin.com/in/narenshailesh/)
+📫 Email: narenshailesh913@gmail.com | 🔗 [LinkedIn](https://www.linkedin.com/in/narenshailesh/) | 📍 Chennai, India 
 
 
 ---
