@@ -2,7 +2,7 @@
 
 📍 Chennai, India  
 📫 Email: narenshailesh913@gmail.com  
-🔗 [LinkedIn]([https://www.linkedin.com/in/narenshailesh/])  
+🔗  [LinkedIn](https://www.linkedin.com/in/narenshailesh/)
 
 
 ---
